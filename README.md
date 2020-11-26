@@ -1,0 +1,1 @@
+this recipe is of a chocoberry ice-cream milk shake made of a perfect blend of strawberry,chocolate and ice-cream into a delicious milkshake.
